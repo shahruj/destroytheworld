@@ -1,0 +1,3 @@
+# destroytheworld
+
+##BRUH MOMENT
